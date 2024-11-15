@@ -2,3 +2,5 @@
 - taken
 - ENG/PL
 - interact with caution
+- neurodvigent
+- gtfo if you're there to stalk me
